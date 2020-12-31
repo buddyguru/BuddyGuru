@@ -12,7 +12,7 @@ Every Guru needs a buddy. BuddyGuru provides you with all the portfolio services
 
 ### About Us
 
-We're a team of BITSians who are working tirelessly to bring out the product to you at the earliest. With the start of 2021, all your wishes (including onboarding to BuddyGuru will be realizied!
+We're a team of BITSians who are working tirelessly to bring out the product to you at the earliest. With the start of 2021, all your wishes (including onboarding to BuddyGuru) will be realizied!
 
 ### Any Queries?
 
